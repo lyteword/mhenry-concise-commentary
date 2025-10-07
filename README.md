@@ -1,4 +1,4 @@
-# Matthew Henry Concise Commentary (Markdown Edition)
+# Matthew Henry Concise Commentary - Markdown Edition
 
 ## Overview
 
