@@ -1,4 +1,4 @@
-# Matthew Henry Concise Commentary - Markdown Edition
+# Matthew Henry's Concise Commentary on the Whole Bible - Markdown Edition
 
 ## Overview
 
