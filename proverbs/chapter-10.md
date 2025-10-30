@@ -1,5 +1,8 @@
 ## Chapter 10
 
+### Chapter Outline
+
+- Through the whole of the Proverbs, we are to look for somewhat beyond the first sense the passage may imply, and this we shall find to be Christ. He is the Wisdom so often spoken of in this book.
 
 ### Verse 1
 
