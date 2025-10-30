@@ -1,5 +1,9 @@
 ## Psalm 44
 
+### Chapter Outline
+
+- A petition for succour and relief.
+
 ### Verses 1–8
 
 Former experiences of God's power and goodness are strong supports to faith, and powerful pleas in prayer under present calamities. The many victories Israel obtained, were not by their own strength or merit, but by God's favour and free grace. The less praise this allows us, the more comfort it affords, that we may see all as coming from the favour of God. He fought for Israel, else they had fought in vain. This is applicable to the planting of the Christian church in the world, which was not by any human policy or power. Christ, by his Spirit, went forth conquering and to conquer; and he that planted a church for himself in the world, will support it by the same power and goodness. They trusted and triumphed in and through him. Let him that glories, glory in the Lord. But if they have the comfort of his name, let them give unto him the glory due unto it.

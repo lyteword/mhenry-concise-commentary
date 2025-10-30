@@ -1,5 +1,9 @@
 ## Psalm 45
 
+### Chapter Outline
+
+- This psalm is a prophecy of Messiah the Prince, and points to him as a Bridegroom espousing the church to himself, and as a King ruling in it, and for it.
+
 ### Verses 1–5
 
 The psalmist's tongue was guided by the Spirit of God, as the pen is by the hand of a ready writer. This psalm is touching the King Jesus, his kingdom and government. It is a shame that this good matter is not more the subject of our discourse. There is more in Christ to engage our love, than there is or can be in any creature. This world and its charms are ready to draw away our hearts from Christ; therefore we are concerned to understand how much more worthy he is of our love. By his word, his promise, his gospel, the good will of God is made known to us, and the good work of God is begun and carried on in us. The psalmist, ver. #(3–5), joyfully foretells the progress and success of the Messiah. The arrows of conviction are very terrible in the hearts of sinners, till they are humbled and reconciled; but the arrows of vengeance will be more so to his enemies who refuse to submit. All who have seen his glory and tasted his grace, rejoice to see him, by his word and Spirit, bring enemies and strangers under his dominion.

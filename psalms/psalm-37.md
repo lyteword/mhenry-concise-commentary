@@ -1,5 +1,9 @@
 ## Psalm 37
 
+### Chapter Outline
+
+- David persuades to patience and confidence in God, by the state of the godly and of the wicked.
+
 ### Verses 1–6
 
 When we look abroad we see the world full of evil-doers, that flourish and live in ease. So it was seen of old, therefore let us not marvel at the matter. We are tempted to fret at this, to think them the only happy people, and so we are prone to do like them: but this we are warned against. Outward prosperity is fading. When we look forward, with an eye of faith, we shall see no reason to envy the wicked. Their weeping and wailing will be everlasting. The life of religion is a believing trust in the Lord, and diligent care to serve him according to his will. It is not trusting God, but tempting him, if we do not make conscience of our duty to him. A man's life consists not in abundance, but, Thou shalt have food convenient for thee. This is more than we deserve, and it is enough for one that is going to heaven. To delight in God is as much a privilege as a duty. He has not promised to gratify the appetites of the body, and the humours of the fancy, but the desires of the renewed, sanctified soul. What is the desire of the heart of a good man? It is this, to know, and love, and serve God. Commit thy way unto the Lord; roll thy way upon the Lord, so the margin reads it. Cast thy burden upon the Lord, the burden of thy care. We must roll it off ourselves, not afflict and perplex ourselves with thoughts about future events, but refer them to God. By prayer spread thy case and all thy cares before the Lord, and trust in him. We must do our duty, and then leave the event with God. The promise is very sweet: He shall bring that to pass, whatever it is, which thou has committed to him.

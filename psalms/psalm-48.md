@@ -1,5 +1,9 @@
 ## Psalm 48
 
+### Chapter Outline
+
+- The glories of the church of Christ.
+
 ### Verses 1–7
 
 Jerusalem is the city of our God: none on earth render him due honour except the citizens of the spiritual Jerusalem. Happy the kingdom, the city, the family, the heart, in which God is great, in which he is all. There God is known. The clearer discoveries are made to us of the Lord and his greatness, the more it is expected that we should abound in his praises. The earth is, by sin, covered with deformity, therefore justly might that spot of ground, which was beautified with holiness, be called the joy of the whole earth; that which the whole earth has reason to rejoice in, that God would thus in very deed dwell with man upon the earth. The kings of the earth were afraid of it. Nothing in nature can more fitly represent the overthrow of heathenism by the Spirit of the gospel, than the wreck of a fleet in a storm. Both are by the mighty power of the Lord.

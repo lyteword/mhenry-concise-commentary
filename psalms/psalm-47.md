@@ -1,5 +1,9 @@
 ## Psalm 47
 
+### Chapter Outline
+
+- The people exhorted to praise God.
+
 ### Verses 1–4
 
 The God with whom we have to do, is a God of awful majesty. The universal and absolute sovereignty of a holy God would be too terrible for us even to think of, were it not exercised by his Son from a mercy-seat; but now it is only terrible to the workers of iniquity. While his people express confidence and joy, and animate each other in serving him, let sinners submit to his authority, and accept his salvation. Jesus Christ shall subdue the Gentiles; he shall bring them as sheep into the fold, not for slaughter, but for preservation. He shall subdue their affections, and make them a willing people in the day of his power. Also it speaks of his giving them rest and settlement. Apply this spiritually; the Lord himself has undertaken to be the inheritance of his people. It shows the faith and submission of the saints. This is the language of every gracious soul, The Lord shall choose my inheritance for me; he knows what is good for me better than I do.

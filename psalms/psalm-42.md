@@ -1,5 +1,9 @@
 ## Psalm 42
 
+### Chapter Outline
+
+- The conflict in the soul of a believer.
+
 ### Verses 1–5
 
 The psalmist looked to the Lord as his chief good, and set his heart upon him accordingly; casting anchor thus at first, he rides out the storm. A gracious soul can take little satisfaction in God's courts, if it do not meet with God himself there. Living souls never can take up their rest any where short of a living God. To appear before the Lord is the desire of the upright, as it is the dread of the hypocrite. Nothing is more grievous to a gracious soul, than what is intended to shake its confidence in the Lord. It was not the remembrance of the pleasures of his court that afflicted David; but the remembrance of the free access he formerly had to God's house, and his pleasure in attending there. Those that commune much with their own hearts, will often have to chide them. See the cure of sorrow. When the soul rests on itself, it sinks; if it catches hold on the power and promise of God, the head is kept above the billows. And what is our support under present woes but this, that we shall have comfort in Him. We have great cause to mourn for sin; but being cast down springs from unbelief and a rebellious will; we should therefore strive and pray against it.
