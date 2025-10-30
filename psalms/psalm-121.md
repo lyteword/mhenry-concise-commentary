@@ -1,6 +1,6 @@
 ## Psalm 121
 
-### Chapter Outline
+### Psalm Outline
 
 - The safety of the godly. (1-8)
 

@@ -1,6 +1,6 @@
 ## Psalm 14
 
-### Chapter Outline
+### Psalm Outline
 
 - A description of the depravity of human nature, and the deplorable corruption of a great part of mankind. (1-7)
 

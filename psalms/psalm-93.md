@@ -1,6 +1,6 @@
 ## Psalm 93
 
-### Chapter Outline
+### Psalm Outline
 
 - The majesty, power, and holiness of Christ's kingdom. (1-5)
 

@@ -1,6 +1,6 @@
 ## Psalm 67
 
-### Chapter Outline
+### Psalm Outline
 
 - A prayer for the enlargement of Christ's kingdom. (1-7)
 

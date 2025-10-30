@@ -1,6 +1,6 @@
 ## Psalm 117
 
-### Chapter Outline
+### Psalm Outline
 
 - All people called upon to praise God. (1-2)
 

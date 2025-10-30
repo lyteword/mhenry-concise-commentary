@@ -1,6 +1,6 @@
 ## Psalm 131
 
-### Chapter Outline
+### Psalm Outline
 
 - The psalmist's humility. Believers encouraged to trust in God. (1-3)
 

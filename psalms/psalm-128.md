@@ -1,6 +1,6 @@
 ## Psalm 128
 
-### Chapter Outline
+### Psalm Outline
 
 - The blessings of those who fear God. (1-6)
 

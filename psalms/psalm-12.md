@@ -1,6 +1,6 @@
 ## Psalm 12
 
-### Chapter Outline
+### Psalm Outline
 
 - The psalmist begs help of God, because there were none among men whom he durst trust. (1-8)
 

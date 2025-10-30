@@ -1,6 +1,6 @@
 ## Psalm 70
 
-### Chapter Outline
+### Psalm Outline
 
 - The speedy destruction of the wicked, and the preservation of the godly. (1-5)
 

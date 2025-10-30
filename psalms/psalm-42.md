@@ -1,6 +1,6 @@
 ## Psalm 42
 
-### Chapter Outline
+### Psalm Outline
 
 - The conflict in the soul of a believer.
 

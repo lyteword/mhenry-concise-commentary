@@ -1,6 +1,6 @@
 ## Psalm 53
 
-### Chapter Outline
+### Psalm Outline
 
 - The corruption of man by nature. (1-6)
 

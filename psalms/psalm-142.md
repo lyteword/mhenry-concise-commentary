@@ -1,6 +1,6 @@
 ## Psalm 142
 
-### Chapter Outline
+### Psalm Outline
 
 - David's comfort in prayer. (1-7)
 

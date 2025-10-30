@@ -1,6 +1,6 @@
 ## Psalm 20
 
-### Chapter Outline
+### Psalm Outline
 
 - This psalm is a prayer for the kings of Israel, but with relation to Christ. (1-9)
 

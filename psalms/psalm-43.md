@@ -1,6 +1,6 @@
 ## Psalm 43
 
-### Chapter Outline
+### Psalm Outline
 
 - David endeavours to still his spirit, with hope and confidence in God. (1-5)
 

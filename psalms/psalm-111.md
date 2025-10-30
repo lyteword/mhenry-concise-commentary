@@ -1,6 +1,6 @@
 ## Psalm 111
 
-### Chapter Outline
+### Psalm Outline
 
 - The Lord is to be praised for his works. (1-10)
 

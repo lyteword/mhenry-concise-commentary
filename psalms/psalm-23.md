@@ -1,6 +1,6 @@
 ## Psalm 23
 
-### Chapter Outline
+### Psalm Outline
 
 - Confidence in God's grace and care. (1-6)
 

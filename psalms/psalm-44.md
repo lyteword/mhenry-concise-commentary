@@ -1,6 +1,6 @@
 ## Psalm 44
 
-### Chapter Outline
+### Psalm Outline
 
 - A petition for succour and relief.
 

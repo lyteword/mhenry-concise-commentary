@@ -1,6 +1,6 @@
 ## Psalm 134
 
-### Chapter Outline
+### Psalm Outline
 
 - An exhortation to bless the Lord. (1-3)
 

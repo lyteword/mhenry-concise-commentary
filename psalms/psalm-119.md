@@ -1,6 +1,6 @@
 ## Psalm 119
 
-### Chapter Outline
+### Psalm Outline
 
 The general scope and design of this psalm is to magnify the Divine law, and make it honourable. There are ten words by which Divine revelation is called in this psalm, and each expresses what God expects from us, and what we may expect from him. 1. God's law; this is enacted by him as our Sovereign. 2. His way; this is the rule of his providence. 3. His testimonies; they are solemnly declared to the world. 4. His commandments; given with authority. 5. His precepts; not left as indifferent matters to us. 6. His word, or saying; it is the declaration of his mind. 7. His judgments; framed in infinite wisdom. 8. His righteousness; it is the rule and standard of what is right. 9. His statutes; they are always binding. 10. His truth or faithfulness; it is eternal truth, it shall endure for ever.
 

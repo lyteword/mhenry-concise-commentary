@@ -1,6 +1,6 @@
 ## Psalm 112
 
-### Chapter Outline
+### Psalm Outline
 
 - The blessedness of the righteous. (1-10)
 

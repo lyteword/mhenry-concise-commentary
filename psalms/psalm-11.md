@@ -1,6 +1,6 @@
 ## Psalm 11
 
-### Chapter Outline
+### Psalm Outline
 
 - David's struggle with, and triumph over a strong temptation to distrust God, and betake himself to indirect means for his own safety, in a time of danger. (1-7)
 

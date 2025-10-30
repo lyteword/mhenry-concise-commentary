@@ -1,6 +1,6 @@
 ## Psalm 47
 
-### Chapter Outline
+### Psalm Outline
 
 - The people exhorted to praise God.
 

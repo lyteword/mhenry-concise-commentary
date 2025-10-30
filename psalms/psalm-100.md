@@ -1,6 +1,6 @@
 ## Psalm 100
 
-### Chapter Outline
+### Psalm Outline
 
 - An exhortation to praise God, and rejoice in him. (1-5)
 

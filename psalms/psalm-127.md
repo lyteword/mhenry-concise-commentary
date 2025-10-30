@@ -1,6 +1,6 @@
 ## Psalm 127
 
-### Chapter Outline
+### Psalm Outline
 
 - The value of the Divine blessing. (1-5)
 

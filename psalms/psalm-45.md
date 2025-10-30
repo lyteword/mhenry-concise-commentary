@@ -1,6 +1,6 @@
 ## Psalm 45
 
-### Chapter Outline
+### Psalm Outline
 
 - This psalm is a prophecy of Messiah the Prince, and points to him as a Bridegroom espousing the church to himself, and as a King ruling in it, and for it.
 

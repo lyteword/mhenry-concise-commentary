@@ -1,6 +1,6 @@
 ## Psalm 37
 
-### Chapter Outline
+### Psalm Outline
 
 - David persuades to patience and confidence in God, by the state of the godly and of the wicked.
 

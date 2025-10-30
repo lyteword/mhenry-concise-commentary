@@ -1,6 +1,6 @@
 ## Psalm 101
 
-### Chapter Outline
+### Psalm Outline
 
 - David's vow and profession of godliness. (1-8)
 

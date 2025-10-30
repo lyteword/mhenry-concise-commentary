@@ -1,6 +1,6 @@
 ## Psalm 16
 
-### Chapter Outline
+### Psalm Outline
 
 - This psalm begins with expressions of devotion, which may be applied to Christ; but ends with such confidence of a resurrection, as must be applied to Christ, and to him only. (1-11)
 

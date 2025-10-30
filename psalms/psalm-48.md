@@ -1,6 +1,6 @@
 ## Psalm 48
 
-### Chapter Outline
+### Psalm Outline
 
 - The glories of the church of Christ.
 

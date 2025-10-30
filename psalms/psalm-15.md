@@ -1,6 +1,6 @@
 ## Psalm 15
 
-### Chapter Outline
+### Psalm Outline
 
 - The way to heaven, if we would be happy, we must be holy. We are encouraged to walk in that way. (1-5)
 

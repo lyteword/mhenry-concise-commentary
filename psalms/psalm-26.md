@@ -1,6 +1,6 @@
 ## Psalm 26
 
-### Chapter Outline
+### Psalm Outline
 
 - David, in this psalm, appeals to God touching his integrity. (1-12)
 

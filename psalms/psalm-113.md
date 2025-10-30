@@ -1,6 +1,6 @@
 ## Psalm 113
 
-### Chapter Outline
+### Psalm Outline
 
 - An exhortation to praise God. (1-9)
 

@@ -1,6 +1,6 @@
 ## Psalm 133
 
-### Chapter Outline
+### Psalm Outline
 
 - The excellency of brotherly love. (1-3)
 

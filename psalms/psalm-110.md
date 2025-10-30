@@ -1,6 +1,6 @@
 ## Psalm 110
 
-### Chapter Outline
+### Psalm Outline
 
 - Christ's kingdom. (1-7)
 

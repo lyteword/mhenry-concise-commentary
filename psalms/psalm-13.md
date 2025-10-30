@@ -1,6 +1,6 @@
 ## Psalm 13
 
-### Chapter Outline
+### Psalm Outline
 
 - The psalmist complains that God had long withdrawn. He earnestly prays for comfort. He assures himself of an answer of peace. (1-6)
 

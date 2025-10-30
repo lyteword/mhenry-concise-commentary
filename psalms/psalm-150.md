@@ -1,6 +1,6 @@
 ## Psalm 150
 
-### Chapter Outline
+### Psalm Outline
 
 - A psalm of praise. (1-5)
 

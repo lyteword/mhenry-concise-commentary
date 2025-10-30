@@ -1,6 +1,6 @@
 ## Psalm 29
 
-### Chapter Outline
+### Psalm Outline
 
 - Exhortation to give glory to God. (1-11)
 

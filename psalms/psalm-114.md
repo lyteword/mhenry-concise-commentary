@@ -1,6 +1,6 @@
 ## Psalm 114
 
-### Chapter Outline
+### Psalm Outline
 
 - An exhortation to fear God. (1-8)
 

@@ -1,6 +1,6 @@
 ## Psalm 123
 
-### Chapter Outline
+### Psalm Outline
 
 - Confidence in God under contempt. (1-4)
 
