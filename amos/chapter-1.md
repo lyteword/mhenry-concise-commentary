@@ -1,4 +1,4 @@
-## Chapter 1
+# Chapter 1
 
 Judgments against the Syrians, Philistines, Tyrians, Edomites, and Ammonites.
 

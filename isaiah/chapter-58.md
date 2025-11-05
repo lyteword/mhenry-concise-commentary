@@ -1,15 +1,15 @@
-## Chapter 58
+# Chapter 58
 
-### Chapter Outline
+## Chapter Outline
 
 - Hypocrisy reproved. (1,2) 
 - A counterfeit and a true fast, with promises to real godliness, and, (3-12)
 
-### Verses 1,2 
+## Verses 1,2 
 
 The Holy Spirit had hypocrites of every age in view. Self-love and timid Christians may say, Spare thyself; dislike to the cross and other motives will say, "Spare the rich and powerful;" but God says, "Spare not:" and we must obey God, not men. We all need earnestly to pray for God's assistance in examining ourselves. Men may go far toward heaven, yet come short; and they may go to hell with a good reputation.
 
-### Verses 3-12
+## Verses 3-12
 
 A fast is a day to afflict the soul; if it does not express true sorrow for sin, and does not promote the putting away of sin, it is not a fast. These professors had shown sorrow on stated or occasioned fasts. But they indulged pride, covetousness, and malignant passions. To be liberal and merciful is more acceptable to God than mere fasting, which, without them, is vain and hypocritical. Many who seem humble in God's house, are hard at home, and harass their families. But no man's faith justifies, which does not work by love. Yet persons, families, neighbourhoods, churches, or nations, show repentance and sorrow for sin, by keeping a fast sincerely, and, from right motives, repenting, and doing good works. The heavy yoke of sin and oppression must be removed. As sin and sorrow dry the bones and weaken the strongest human constitution; so the duties of kindness and charity strengthen and refresh both body and mind. Those who do justly and love mercy, shall have the comfort, even in this world. Good works will bring the blessing of God, provided they are done from love to God and man, and wrought in the soul by the Holy Spirit.
 
